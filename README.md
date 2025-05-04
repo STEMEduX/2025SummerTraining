@@ -1,1 +1,1 @@
-# 2025SummerTraining
+# Financial Planning Education
